@@ -12,6 +12,20 @@ _Im afk most of the time (probably) but if you see me active say hello :D_
 
 _I go by any pronouns!! he/she/it/they, doesn't matter to me. Im also pansexual and maybe poly (?)_
 
+___Fict___
+
+_My main fict is Cocoa from Dandys World !!_
+
+__Other ficts__
+
+_007n7 from forsaken_
+
+_Avery from SFAWTDE_
+
+_Ein from Aphmau_
+
+_Squiddo_
+
 ___DNI___
 
 _➤ Homophobic/racist people: your not appreciated here :/_
