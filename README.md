@@ -4,6 +4,8 @@ _I go by many names !!: Viin, Vazil, jayzen, Ghost, Leo, Akeldama, and Zuzu !! b
 
 ___More about me !!___
 
+_I am 18+ !!_
+
 _I am a furry artist and a furry artist only !! I don't do humans :/._
 
 _I love socializing !! I love being interacted with !! if im afk feel free to sit with me ^^_
