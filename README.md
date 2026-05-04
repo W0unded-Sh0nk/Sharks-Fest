@@ -37,7 +37,3 @@ _➤ P3do📁: your attracted to minors, pick someone your age_
 _➤ Zoo📁: same thing, pick your own kind and leave those poor critters alone_
 
 _➤ Extremely rude people: your not cool :/_
-
-___⚠️Warning⚠️___
-
-_I am a sensitive person !! yes I cry easily, NO I can't help it and im sorry for that. Im usually a fun person and want to make people happy but if you ruin the fun then no one is happy ://_
